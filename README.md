@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Copper130
-- 👀 I’m interested in: lots of stuff
+- 👀 I’m interested in: little bit of everything
 - 🌱 I’m currently learning: C++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Cooper09h@gmail.com
